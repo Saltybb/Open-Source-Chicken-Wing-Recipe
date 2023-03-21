@@ -12,7 +12,8 @@ Ingredients
   A teaspoon of Paprika and garlic powder
   Baking powder
   Salt 
-  Black pepper 
+  Black pepper
+  WD-40 Heavy-Duty Lubricant, 55 Gallon Drum
   
 Equipment
   Hands
@@ -23,3 +24,4 @@ Method
   3. Pray to our lord and savior Richard Stallman.  
   4. Pat wings dry and place them in a dry very big bowl. Gently kiss the chicken wings.
   5. Preheat oven. Do not jump inside!
+  6. Get industrial size lube drum, WD-40 (You'll only use about 54 gallons of it.)
